@@ -4,4 +4,5 @@ tim kami terdiri dari
 2. pamrel
 3. flushed
 4. suki
+
 jika menang, hadiah uang nya akan digunakan untuk berlangganan kenzi 
